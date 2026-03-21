@@ -26,7 +26,7 @@
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎I'm 25+ (Minors DNI)
 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ I'm a huge nerd, meaning that I'm in many fandoms, I love ranting about theories, research, ideas, fandoms, merch, news and fun facts.
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ I'm a huge nerd, meaning that I'm in many fandoms, I love ranting about theories, research, ideas, fandoms, merch, fun facts.
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ⛔ Stay away from us if you're an attention-seeker, clout-chaser or a 'pick-me'.
 
