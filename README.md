@@ -127,4 +127,12 @@ Facts: ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ �
 ![Image Alt](https://github.com/llWandehll/llWandehll/blob/e681f514d674255ba549851635368f77d9f34e5b/kanaya.png)
 ![Image Alt](https://github.com/llWandehll/llWandehll/blob/e681f514d674255ba549851635368f77d9f34e5b/dl7vyrt-6e934a19-e3f6-43a1-8f74-8b10d8a3de10.png)
 ![Image Alt](https://github.com/llWandehll/llWandehll/blob/e681f514d674255ba549851635368f77d9f34e5b/jeff.png)
-
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/350de17134255cc1863046a16448fd2560a68d23/engaged.png)
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/350de17134255cc1863046a16448fd2560a68d23/fizz.png)
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/350de17134255cc1863046a16448fd2560a68d23/judy.jpg)
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/350de17134255cc1863046a16448fd2560a68d23/lucifer.png)
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/350de17134255cc1863046a16448fd2560a68d23/mabel.gif)
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/350de17134255cc1863046a16448fd2560a68d23/mugman.gif)
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/350de17134255cc1863046a16448fd2560a68d23/splendid.png)
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/350de17134255cc1863046a16448fd2560a68d23/sweden.png)
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/350de17134255cc1863046a16448fd2560a68d23/charlie.png)
