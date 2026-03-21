@@ -45,15 +45,15 @@ Facts: ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ �
 
 
 
-- I'm an INFJ-t
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/5f6536fe17ee929b76f2fc60ebcc29278d9a6662/point.gif) I'm an INFJ-t
 
-- I'm a Ravenclaw 🐦‍⬛
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/5f6536fe17ee929b76f2fc60ebcc29278d9a6662/point.gif) I'm a Ravenclaw 🐦‍⬛
 
-- I'm a Taurus ♉︎
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/5f6536fe17ee929b76f2fc60ebcc29278d9a6662/point.gif) I'm a Taurus ♉︎
 
-- I'm an Ambivert
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/5f6536fe17ee929b76f2fc60ebcc29278d9a6662/point.gif) I'm an Ambivert
 
-- I'm Demi-Pansexual
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/5f6536fe17ee929b76f2fc60ebcc29278d9a6662/point.gif) I'm Demi-Pansexual
 
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ![Image Alt](https://github.com/llWandehll/llWandehll/blob/8f5c3ababbf558668550247362cfce311d6281f0/homestuckputer.gif)
