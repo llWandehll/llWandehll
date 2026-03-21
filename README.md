@@ -30,7 +30,10 @@
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ⛔ Stay away from me if you're an attention-seeker, clout-chaser or a 'pick-me'.
 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ⛔ I don’t support groomer games or ripoffs, especially Dandy’s World.
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎
+
+
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ![Image Alt](https://github.com/llWandehll/llWandehll/blob/fc204a9a67af2b0d3f143473225a66e08ccbb8e6/MyGhost.png)
 
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎![Image Alt](https://github.com/llWandehll/llWandehll/blob/511648351f7a34526c633c4e3abb5ec2c067e2ae/line.gif)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎                                   
@@ -49,7 +52,7 @@
 
 ![Image Alt](https://github.com/llWandehll/llWandehll/blob/5f6536fe17ee929b76f2fc60ebcc29278d9a6662/point.gif) I'm a Ravenclaw 🐦‍⬛
 
-![Image Alt](https://github.com/llWandehll/llWandehll/blob/5f6536fe17ee929b76f2fc60ebcc29278d9a6662/point.gif) I'm a Taurus ♉︎
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/5f6536fe17ee929b76f2fc60ebcc29278d9a6662/point.gif) I'm a Taurus ♉︎ 
 
 ![Image Alt](https://github.com/llWandehll/llWandehll/blob/5f6536fe17ee929b76f2fc60ebcc29278d9a6662/point.gif) I'm an Ambivert
 
