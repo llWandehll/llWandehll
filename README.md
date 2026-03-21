@@ -1,6 +1,6 @@
 ## About me
 
-![Image Alt](https://github.com/llWandehll/llWandehll/blob/b8a9d744f7be68551979bd4a02d72262c7b5dabe/FIXED%20(1).png)
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/dfbccad9c581d9778a798b26307fc12272db023e/dasddsadas.png)
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎    ‎  ☆ Hello I'm Wandeh ☆
 
