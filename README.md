@@ -56,6 +56,9 @@ Facts: ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ �
 - I'm Demi-Pansexual
 
 
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/8f5c3ababbf558668550247362cfce311d6281f0/homestuckputer.gif)
+
+
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
 
@@ -75,3 +78,39 @@ Facts: ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ �
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎
 ![Image Alt](https://github.com/llWandehll/llWandehll/blob/1f69c7565607e9703272538a3885d55951653b45/dfsdf.png)
+
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/8f5c3ababbf558668550247362cfce311d6281f0/benice.gif)
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/8f5c3ababbf558668550247362cfce311d6281f0/book.gif)
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/8f5c3ababbf558668550247362cfce311d6281f0/breath.jpg)
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/8f5c3ababbf558668550247362cfce311d6281f0/cats.gif)
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/8f5c3ababbf558668550247362cfce311d6281f0/coffee.png)
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/8f5c3ababbf558668550247362cfce311d6281f0/d52bige-ed06a6fd-f4d5-4fc2-afb0-37b0b6a29ad3.png)
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/8f5c3ababbf558668550247362cfce311d6281f0/dave.png)
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/8f5c3ababbf558668550247362cfce311d6281f0/demipan.png)
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/8f5c3ababbf558668550247362cfce311d6281f0/error.png)
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/8f5c3ababbf558668550247362cfce311d6281f0/ink.png)
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/8f5c3ababbf558668550247362cfce311d6281f0/fresh.png)
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/8f5c3ababbf558668550247362cfce311d6281f0/sans.png)
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/8f5c3ababbf558668550247362cfce311d6281f0/firewind.gif)
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/8f5c3ababbf558668550247362cfce311d6281f0/gamer.gif)
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/8f5c3ababbf558668550247362cfce311d6281f0/infj.gif)
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/8f5c3ababbf558668550247362cfce311d6281f0/medieval.gif)
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/8f5c3ababbf558668550247362cfce311d6281f0/memes.gif)
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/8f5c3ababbf558668550247362cfce311d6281f0/nepeta.png)
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/8f5c3ababbf558668550247362cfce311d6281f0/pomni.gif)
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/8f5c3ababbf558668550247362cfce311d6281f0/rain.gif)
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/8f5c3ababbf558668550247362cfce311d6281f0/ravenclaw.gif)
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/8f5c3ababbf558668550247362cfce311d6281f0/research.gif)
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/8f5c3ababbf558668550247362cfce311d6281f0/sai.png)
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/8f5c3ababbf558668550247362cfce311d6281f0/sleep.gif)
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/8f5c3ababbf558668550247362cfce311d6281f0/sol1.gif)
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/8f5c3ababbf558668550247362cfce311d6281f0/sol2.png)
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/8f5c3ababbf558668550247362cfce311d6281f0/sol3.jpg)
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/8f5c3ababbf558668550247362cfce311d6281f0/sol4.gif)
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/8f5c3ababbf558668550247362cfce311d6281f0/space.gif)
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/8f5c3ababbf558668550247362cfce311d6281f0/timekeeper.png)
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/8f5c3ababbf558668550247362cfce311d6281f0/twi.png)
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/8f5c3ababbf558668550247362cfce311d6281f0/twipie.gif)
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/8f5c3ababbf558668550247362cfce311d6281f0/undeertale.gif)
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/8f5c3ababbf558668550247362cfce311d6281f0/wuk1.gif)
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/8f5c3ababbf558668550247362cfce311d6281f0/wuk2.gif)
