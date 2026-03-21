@@ -32,7 +32,6 @@ I'm a huge nerd, meaning that I'm in many fandoms, I love ranting about theories
 
 ⛔ We don’t support groomer games or ripoffs, especially Dandy’s World.
 
-Respectfully, I don’t take self-diagnoses seriously because they can be wrong. Mental illnesses are real and serious, not a trend or an excuse to gate-keep characters, so I only consider them valid if a doctor confirms them. However, I do respect you either way.
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎                                   
 
