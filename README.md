@@ -160,3 +160,6 @@
 ![Image Alt](https://github.com/llWandehll/llWandehll/blob/6a341dfd282647e97891b5b5204b2eaf65049848/mituna_stamp.gif)
 ![Image Alt](https://github.com/llWandehll/llWandehll/blob/32b530276889f6978ccc8a032d0676153a3dff79/purevanilla_stamp.png)
 ![Image Alt](https://github.com/llWandehll/llWandehll/blob/32b530276889f6978ccc8a032d0676153a3dff79/sweetlilyberry_stamp.png)
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/9efb9d89f208e93ade4f3e03751a66a4971c5b2a/ink_brown_stamp.png)
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/9efb9d89f208e93ade4f3e03751a66a4971c5b2a/ribbitstamp.png)
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/9efb9d89f208e93ade4f3e03751a66a4971c5b2a/sollux_coffee.png)
