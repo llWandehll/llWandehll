@@ -163,3 +163,4 @@
 ![Image Alt](https://github.com/llWandehll/llWandehll/blob/9efb9d89f208e93ade4f3e03751a66a4971c5b2a/ink_brown_stamp.png)
 ![Image Alt](https://github.com/llWandehll/llWandehll/blob/9efb9d89f208e93ade4f3e03751a66a4971c5b2a/ribbitstamp.png)
 ![Image Alt](https://github.com/llWandehll/llWandehll/blob/9efb9d89f208e93ade4f3e03751a66a4971c5b2a/sollux_coffee.png)
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/72047fdd572aba0cc075775ee819e77d79f87f1e/calliope_stamp.png)
