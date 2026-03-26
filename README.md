@@ -153,3 +153,8 @@
 ![Image Alt](https://github.com/llWandehll/llWandehll/blob/d970638f162d171eada0454e646470d85f3b0b97/shadow_stamp.gif)
 ![Image Alt](https://github.com/llWandehll/llWandehll/blob/d970638f162d171eada0454e646470d85f3b0b97/blaze_stamp.gif)
 ![Image Alt](https://github.com/llWandehll/llWandehll/blob/d970638f162d171eada0454e646470d85f3b0b97/maomao_stamp.png)
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/6a341dfd282647e97891b5b5204b2eaf65049848/Ink_stamp.png)
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/6a341dfd282647e97891b5b5204b2eaf65049848/rufioh%20stamp.png)
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/6a341dfd282647e97891b5b5204b2eaf65049848/sollux_bee_stamp.gif)
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/6a341dfd282647e97891b5b5204b2eaf65049848/fresh_stamp_2.png)
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/6a341dfd282647e97891b5b5204b2eaf65049848/mituna_stamp.gif)
