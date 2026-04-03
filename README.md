@@ -30,7 +30,7 @@
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ⛔ Stay away from me if you're an attention-seeker, clout-chaser or a 'pick-me'.
 
- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ⛔ If you're a PaperFresh shipper, you're immediately getting blocked. (I don't suport pdf ships)
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ⛔ If you're a PaperFresh shipper, you're immediately getting blocked. (I don't support pdf ships)
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎
 
