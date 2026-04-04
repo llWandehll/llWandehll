@@ -107,6 +107,9 @@ I don't mind being the rock for my homies but I have strict boundaries when it c
 ⚠️ You have malicious intentions or your behavior feels seriously off.
 
 ⚠️ You guilt-trip, manipulate, boundary-push, or keep going after being told no.
+
+
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎![Image Alt](https://github.com/llWandehll/llWandehll/blob/511648351f7a34526c633c4e3abb5ec2c067e2ae/line.gif)
 ‎
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎
