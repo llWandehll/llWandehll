@@ -98,8 +98,8 @@
 ⚠️ You're a minor, we're UNC, do not interact with us and get off the 18+ server.‎
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎
-
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/69b40b20d6272462b224b90d7b3c8179e956a025/arasolimage1.png)
+‎![Image Alt](https://github.com/llWandehll/llWandehll/blob/69b40b20d6272462b224b90d7b3c8179e956a025/erinepbannerrrr.png) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎
 ![Image Alt](https://github.com/llWandehll/llWandehll/blob/1f69c7565607e9703272538a3885d55951653b45/dfsdf.png)
 
 ![Image Alt](https://github.com/llWandehll/llWandehll/blob/8f5c3ababbf558668550247362cfce311d6281f0/benice.gif)
