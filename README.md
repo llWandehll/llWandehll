@@ -44,24 +44,26 @@
 
 • Drawing 🎨 • Video editing 📽️ • 3D modelling 🗿 • Roleplaying ✍️ • Writing • Reading 📖 • Gaming 🎮 • Collecting merch 🫰 • Reasearch 🧠 • Watching movies/series 🍿 • Hanging out with my partner and my friends 🫂 • Daydreaming 💭 • Cooking/baking 🧁• Working out 🏋• Photography 📸 • Learning 💡• Spirituality 🔮 • Paranormal 👻• Journaling 📒 • Nature walks 🍂 • Traveling ✈️ • Psychology 🎓 • History 🏰 • Decorating 🪟 • Learning new languages 🌍 • Meditation 🧘‍♂️ • Astrology 🃏 • Astronomy 🔭 • Music storytelling & making playlists 🎧🌌 • Cosplaying 👗 • Crafting ✂️ • Puzzle solving 🧩 • Documenting 📄• Mystery & conspiracy analyzing 🔎 • Philosophy 🏛️ • Paleontology 🦖 •
 
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![Image Alt](https://github.com/llWandehll/llWandehll/blob/ad612001506c6cdadf306f57b400b63dc3366f02/sun-wukong-monkie-kid%20(1).gif)
+
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  Facts: ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ Facts: ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
 
 
 
-![Image Alt](https://github.com/llWandehll/llWandehll/blob/5f6536fe17ee929b76f2fc60ebcc29278d9a6662/point.gif) I'm an INFJ-t
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![Image Alt](https://github.com/llWandehll/llWandehll/blob/5f6536fe17ee929b76f2fc60ebcc29278d9a6662/point.gif) I'm an INFJ-t
 
-![Image Alt](https://github.com/llWandehll/llWandehll/blob/5f6536fe17ee929b76f2fc60ebcc29278d9a6662/point.gif) I'm a Ravenclaw 🐦‍⬛
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![Image Alt](https://github.com/llWandehll/llWandehll/blob/5f6536fe17ee929b76f2fc60ebcc29278d9a6662/point.gif) I'm a Ravenclaw 🐦‍⬛
 
-![Image Alt](https://github.com/llWandehll/llWandehll/blob/5f6536fe17ee929b76f2fc60ebcc29278d9a6662/point.gif) I'm a Taurus ♉︎ 
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![Image Alt](https://github.com/llWandehll/llWandehll/blob/5f6536fe17ee929b76f2fc60ebcc29278d9a6662/point.gif) I'm a Taurus ♉︎ 
 
-![Image Alt](https://github.com/llWandehll/llWandehll/blob/5f6536fe17ee929b76f2fc60ebcc29278d9a6662/point.gif) I'm an Ambivert
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![Image Alt](https://github.com/llWandehll/llWandehll/blob/5f6536fe17ee929b76f2fc60ebcc29278d9a6662/point.gif) I'm an Ambivert
 
-![Image Alt](https://github.com/llWandehll/llWandehll/blob/5f6536fe17ee929b76f2fc60ebcc29278d9a6662/point.gif) I'm Demi-Pansexual
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![Image Alt](https://github.com/llWandehll/llWandehll/blob/5f6536fe17ee929b76f2fc60ebcc29278d9a6662/point.gif) I'm Demi-Pansexual
 
 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![Image Alt](https://github.com/llWandehll/llWandehll/blob/8f5c3ababbf558668550247362cfce311d6281f0/homestuckputer.gif)
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎![Image Alt](https://github.com/llWandehll/llWandehll/blob/2f1f6563fbcdb4b034380ba65fe723bfebff56a8/tumblr_0ae7810f188d995de592a2fd062b7537_e5e3d27b_640-ezgif.com-webp-to-gif-converter.gif)
 
 
 
@@ -95,7 +97,8 @@
 
 ⚠️ You're a flirt or wearing NSFW skins.
 
-⚠️ You're a minor, we're UNC, do not interact with us and get off the 18+ server.‎
+⚠️ You're a minor, we're UNC, do not interact with us and get off the 18+ server.
+‎
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎
 ![Image Alt](https://github.com/llWandehll/llWandehll/blob/69b40b20d6272462b224b90d7b3c8179e956a025/arasolimage1.png)
