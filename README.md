@@ -97,7 +97,16 @@
 
 ⚠️ You're a flirt or wearing NSFW skins.
 
-⚠️ You're a minor, we're UNC, do not interact with us and get off the 18+ server.
+⚠️ You’re a minor. I'm an adult. Do not interact with me and stay off 18+ servers.
+
+⚠️ You're disrespectful towards my partner or my friends. I don't tolorate disrespect.
+
+⚠️ You're a chronic-venter that only comes around when you need something. 
+I don't mind being the rock for my homies but I have strict boundaries when it comes to my emotional energy.
+
+⚠️ You have malicious intentions or your behavior feels seriously off.
+
+⚠️ You guilt-trip, manipulate, boundary-push, or keep going after being told no.
 ‎
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎
