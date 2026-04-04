@@ -93,7 +93,7 @@
 
 ⚠️ You're covering us on purpose or won't move.
 
-⚠️ You copied/inspo'd from my or my partner's skins without permission.
+⚠️ You copied/inspo'd from mine or my partner's skins without permission.
 
 ⚠️ You're a flirt or wearing NSFW skins.
 
