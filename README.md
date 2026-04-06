@@ -114,6 +114,9 @@ I don't mind being the rock for my homies but I have strict boundaries when it c
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎
 ![Image Alt](https://github.com/llWandehll/llWandehll/blob/69b40b20d6272462b224b90d7b3c8179e956a025/arasolimage1.png)
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/36ee75ca3a570bc93d85024207201e559d6243d3/arasol_banner.png)
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/36ee75ca3a570bc93d85024207201e559d6243d3/wynmitz_banner.png)
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/36ee75ca3a570bc93d85024207201e559d6243d3/chiziv_banner.png)
 ‎![Image Alt](https://github.com/llWandehll/llWandehll/blob/69b40b20d6272462b224b90d7b3c8179e956a025/erinepbannerrrr.png) ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎
 ![Image Alt](https://github.com/llWandehll/llWandehll/blob/1f69c7565607e9703272538a3885d55951653b45/dfsdf.png)
 
