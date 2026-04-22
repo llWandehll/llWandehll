@@ -44,7 +44,7 @@
 
 • Drawing 🎨 • Video editing 📽️ • 3D modelling 🗿 • Roleplaying ✍️ • Writing • Reading 📖 • Gaming 🎮 • Collecting merch 🫰 • Reasearch 🧠 • Watching movies/series 🍿 • Hanging out with my partner and my friends 🫂 • Daydreaming 💭 • Cooking/baking 🧁• Working out 🏋• Photography 📸 • Learning 💡• Spirituality 🔮 • Paranormal 👻• Journaling 📒 • Nature walks 🍂 • Traveling ✈️ • Psychology 🎓 • History 🏰 • Decorating 🪟 • Learning new languages 🌍 • Meditation 🧘‍♂️ • Astrology 🃏 • Astronomy 🔭 • Music storytelling & making playlists 🎧🌌 • Cosplaying 👗 • Crafting ✂️ • Puzzle solving 🧩 • Documenting 📄• Mystery & conspiracy analyzing 🔎 • Philosophy 🏛️ • Paleontology 🦖 •
 
- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ![Image Alt](https://github.com/llWandehll/llWandehll/blob/ad612001506c6cdadf306f57b400b63dc3366f02/sun-wukong-monkie-kid%20(1).gif)
+
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
 
