@@ -32,6 +32,8 @@
 
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ⛔ If you're a PaperFresh shipper, you're immediately getting blocked. (I don't support pdf ships)
 
+  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ I'm usually AFK-parking so if I don't respond to you or your whispering, I'm not ignoring you!
+
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎
 
 
