@@ -44,7 +44,7 @@
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ My hobbies are:
 
-• Drawing 🎨 • Video editing 📽️ • 3D modelling 🗿 • Roleplaying ✍️ • Writing • Reading 📖 • Gaming 🎮 • Collecting merch 🫰 • Reasearch 🧠 • Watching movies/series 🍿 • Hanging out with my partner and my friends 🫂 • Daydreaming 💭 • Cooking/baking 🧁• Working out 🏋• Photography 📸 • Learning 💡• Spirituality 🔮 • Paranormal 👻• Journaling 📒 • Nature walks 🍂 • Traveling ✈️ • Psychology 🎓 • History 🏰 • Decorating 🪟 • Learning new languages 🌍 • Meditation 🧘‍♂️ • Astrology 🃏 • Astronomy 🔭 • Music storytelling & making playlists 🎧🌌 • Cosplaying 👗 • Crafting ✂️ • Puzzle solving 🧩 • Documenting 📄• Mystery & conspiracy analyzing 🔎 • Philosophy 🏛️ • Paleontology 🦖 •
+• Drawing 🎨 • Video editing 📽️ • 3D modelling 🗿 • Roleplaying ✍️ • Writing • Reading 📖 • Gaming 🎮 • Collecting merch 🫰 • Reasearch 🧠 • Watching movies/series 🍿 • Hanging out with my partner and my friends 🫂 • Daydreaming 💭 • Cooking/baking 🧁• Working out 🏋• Photography 📸 • Learning 💡• Spirituality 🔮 • Paranormal 👻• Journaling 📒 • Nature walks 🍂 • Traveling ✈️ • Psychology 🎓 • History 🏰 • Decorating 🪟 • Learning new languages 🌍 • Meditation 🧘‍♂️ • Astrology 🃏 • Astronomy 🔭 • Music storytelling & making playlists 🎧🌌 • Cosplaying 👗 • Crafting ✂️ • Puzzle solving 🧩 • Documenting 📄• Mystery & conspiracy analyzing 🔎 • Philosophy 🏛️ • Paleontology 🦖 • Sewing ✂️ • Herbalism 🌿 • Scrapbooking 🖼️ • Genealogy 👨‍👩‍👧‍👦 •
 
 
 
