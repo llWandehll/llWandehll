@@ -206,3 +206,4 @@ I don't mind being the rock for my homies but I have strict boundaries when it c
 ![Image Alt](https://github.com/llWandehll/llWandehll/blob/8f39015f2c59cdce6a19fb5bd0cda81b335cf7ec/wally_stamp.png)
 ![Image Alt](https://github.com/llWandehll/llWandehll/blob/620780e153cc81814151dedbe6b5084e1e4dfdf8/timekeeper_badge.png)
 ![Image Alt](https://github.com/llWandehll/llWandehll/blob/620780e153cc81814151dedbe6b5084e1e4dfdf8/shadowkeeper_badge.png)
+![Image Alt](https://github.com/llWandehll/llWandehll/blob/bfc517818353d10bf91ec57faa82a868c16659cd/haru_stamp.png)
